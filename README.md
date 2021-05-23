@@ -1,3 +1,1 @@
-hi my name is ryanistaken
-
-sometime i made discord bot
+# i am better than nikitpad lmao
